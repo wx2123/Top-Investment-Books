@@ -1,2 +1,2 @@
 # Top-Investment-Books
-which you must read again and again!
+Classical investment books which you must read again and again!
